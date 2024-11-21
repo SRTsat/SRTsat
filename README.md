@@ -1,5 +1,5 @@
 - 👋 Hi, I’m satria
-- 👀 I’m interested in reading book
+- 👀 I’m interested in many thing
 - 🌱 I’m currently learning Many Thing
 - 😄 Pronouns: she/him
 - ⚡ Fun fact: Im idiot sandwich
